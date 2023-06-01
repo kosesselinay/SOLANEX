@@ -38,3 +38,9 @@ As a Software Engineer, the learnings from SOLANEX will continue to contribute t
 
 ![Solanex Logo](https://i.ibb.co/YXWVT3H/Resim1.jpg)
 ![Solanex Logo](https://i.ibb.co/S3Gtv25/Resim2.jpg)
+![Solanex Logo](https://i.ibb.co/ZhSvt5j/Resim4.jpg)
+![Solanex Logo](https://i.ibb.co/x1h6BVm/Resim15.jpg)
+![Solanex Logo](https://i.ibb.co/WGrthCn/Resim22.jpg)
+![Solanex Logo](https://i.ibb.co/41nJSsH/Resim24.jpg)
+![Solanex Logo](https://i.ibb.co/CJKZYDd/Resim11.jpg)
+
