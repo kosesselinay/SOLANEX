@@ -34,3 +34,29 @@ The development of SOLANEX is an ongoing process, and there are several plans fo
 The development of SOLANEX has provided valuable experience in both front-end and back-end development, as well as exposure to cutting-edge technologies such as the Solana Blockchain. The project showcases the skills and knowledge gained during the development process and serves as a testament to the ability to create scalable and secure decentralized applications.
 
 As a Software Engineer, the learnings from SOLANEX will continue to contribute to professional growth and development. Excitement abounds as SOLANEX looks to expand to the web, bringing the decentralized NFT marketplace to an even wider audience.
+
+
+![Solanex Logo](https://ibb.co/m0BPFGf)
+![Solanex Logo](https://ibb.co/tJFqCSQ)
+![Solanex Logo](https://ibb.co/LxS1c4Q)
+
+
+https://ibb.co/JvpCFBS
+https://ibb.co/LCrBbmF
+https://ibb.co/KNsmVRk
+https://ibb.co/rQsNmsZ
+https://ibb.co/HTnpLnt
+https://ibb.co/VNsLCR3
+https://ibb.co/0ByS6vN
+https://ibb.co/dp44zqF
+https://ibb.co/mJmY6gh
+https://ibb.co/cgHSx8c
+https://ibb.co/TH7TKpD
+https://ibb.co/v37B16w
+https://ibb.co/gvPydf5
+https://ibb.co/cg70fkb
+https://ibb.co/0G9SPpK
+https://ibb.co/fQ5zg80
+https://ibb.co/sbTHf7j
+https://ibb.co/wy6fNJF
+https://ibb.co/QD3XH84
