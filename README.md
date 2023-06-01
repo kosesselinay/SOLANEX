@@ -36,27 +36,5 @@ The development of SOLANEX has provided valuable experience in both front-end an
 As a Software Engineer, the learnings from SOLANEX will continue to contribute to professional growth and development. Excitement abounds as SOLANEX looks to expand to the web, bringing the decentralized NFT marketplace to an even wider audience.
 
 
-![Solanex Logo](https://ibb.co/m0BPFGf)
-![Solanex Logo](https://ibb.co/tJFqCSQ)
-![Solanex Logo](https://ibb.co/LxS1c4Q)
-
-
-https://ibb.co/JvpCFBS
-https://ibb.co/LCrBbmF
-https://ibb.co/KNsmVRk
-https://ibb.co/rQsNmsZ
-https://ibb.co/HTnpLnt
-https://ibb.co/VNsLCR3
-https://ibb.co/0ByS6vN
-https://ibb.co/dp44zqF
-https://ibb.co/mJmY6gh
-https://ibb.co/cgHSx8c
-https://ibb.co/TH7TKpD
-https://ibb.co/v37B16w
-https://ibb.co/gvPydf5
-https://ibb.co/cg70fkb
-https://ibb.co/0G9SPpK
-https://ibb.co/fQ5zg80
-https://ibb.co/sbTHf7j
-https://ibb.co/wy6fNJF
-https://ibb.co/QD3XH84
+![Solanex Logo](https://i.ibb.co/YXWVT3H/Resim1.jpg)
+![Solanex Logo](https://i.ibb.co/S3Gtv25/Resim2.jpg)
